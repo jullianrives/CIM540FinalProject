@@ -9,7 +9,7 @@ Step 1: Start your dance party backtrack/jamtrack
 
 Step 2: Click to start the accompaniment loops for funzies, but be sure to time them correctly! You can always stop and re-trigger a loop with its designated "Stop" button below it's start button.
 
-Step 3: Once you've got some sweet loops pumpin, go ahead and lean back adn get yo' dance on for the camera!
+Step 3: Once you've got some sweet loops pumpin, go ahead and lean back and get yo' dance on for the camera!
 
 
 
